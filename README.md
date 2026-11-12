@@ -1,4 +1,4 @@
-![Aisha Ahmed: brand content & digital products in Arabic & English](assets/banner.png)
+![Aisha Ahmed: solo entrepreneur. Brand content & digital products in Arabic & English](assets/banner.png)
 
 # Hi, I'm Aisha 👋
 
